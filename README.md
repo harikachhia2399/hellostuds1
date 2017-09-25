@@ -1,3 +1,5 @@
 # hellostuds1
 stud details
-CR7 is a Legend
+i am a fybsc student
+from mithibai
+and its good experience to do it
